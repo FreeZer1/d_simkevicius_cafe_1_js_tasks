@@ -1,0 +1,1 @@
+# d_simkevicius_cafe_1_js_tasks
